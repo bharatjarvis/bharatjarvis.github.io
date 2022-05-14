@@ -1,1 +1,0 @@
-# bharatjarvis.github.io
